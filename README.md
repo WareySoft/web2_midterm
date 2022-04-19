@@ -1,1 +1,1 @@
-# web2_midterm
+# Nurtas Musilimkhanov & Amirlan Zhakyp
